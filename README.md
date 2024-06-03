@@ -1,4 +1,4 @@
-### ✨ *@zeiohub*  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ***Builder of really awesome technology products.***
+### ✨ *@zeiohub*  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ***Really awesome technology products.***
 
 ---
 
